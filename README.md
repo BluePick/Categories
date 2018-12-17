@@ -1,3 +1,3 @@
 Categories
 ==========
-Hope This will help you :)
+Hope this will help you :)
